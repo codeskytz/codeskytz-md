@@ -1,3 +1,3 @@
 ## CODESKYTZ-MD
 
-<a href="bot.codeskytz.site">reach out </a>
+<a href="https://bot.codeskytz.site">reach out </a>
